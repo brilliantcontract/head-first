@@ -1,4 +1,4 @@
-# Gift registry HO HO HO
+# Gift registry
 
 * Einstein pillow
 * Letter Tycoon board game
